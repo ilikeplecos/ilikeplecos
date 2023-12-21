@@ -5,13 +5,19 @@
 # [cursor](https://files.catbox.moe/iag5d5.rar)
 ![ApplicationFrameHost_F3uWhLaAnz](https://github.com/ilikeplecos/ilikeplecos/assets/154118561/ef7d5df1-d629-4b22-bcc1-a8bc8d69c0e2)
 
-# [i love oregairu (dt skin)](https://mega.nz/file/tZQ1VAbT#dMc7PBc5lYM5NLhMvYvFmjK4dhmeA1zNVeqoeIhkG34)
+# [i love oregairu](https://mega.nz/file/tZQ1VAbT#dMc7PBc5lYM5NLhMvYvFmjK4dhmeA1zNVeqoeIhkG34)
+>dt skin
+
 ![screenshot1710](https://github.com/ilikeplecos/ilikeplecos/assets/154118561/0ea68be2-6a0b-42dd-9909-ad2416a48c35)
 
-# [ddddnare (everything else skin)](https://mega.nz/file/0AwQgJZZ#0aLvhQ1jf0uqUtJ8sHaw9CJIGcu0Q6Jz6g183_5950Q)
+# [ddddnare](https://mega.nz/file/0AwQgJZZ#0aLvhQ1jf0uqUtJ8sHaw9CJIGcu0Q6Jz6g183_5950Q)
+>everything else skin
+
 ![screenshot1700](https://github.com/ilikeplecos/ilikeplecos/assets/154118561/49325111-769f-4164-ba96-885ed52511f8)
 
-# [def+a+lot "edit" (only changed numbers and cursor)](https://mega.nz/file/aw4HwYjK#9cyV2fwtXrXQHlfjKPNIuK2hnBEWUtn-8tFXRmMzYy8)
+# [def+a+lot "edit"](https://mega.nz/file/aw4HwYjK#9cyV2fwtXrXQHlfjKPNIuK2hnBEWUtn-8tFXRmMzYy8)
+>only changed numbers and cursor
+
 ![screenshot1716](https://github.com/ilikeplecos/ilikeplecos/assets/154118561/08aaeb82-2b9b-4ece-be16-2ec232158c7a)
 
 # [#azer8osuplayer original](https://mega.nz/file/TtJGTLYY#uyzj7jCEe_wf9zef5TwhVHVhxEpIMpGB8me1Tm1nVoY)
