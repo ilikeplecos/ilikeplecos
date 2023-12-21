@@ -1,6 +1,6 @@
 >this is a list of skins that i'm most likely using. it's not on order on how much i use it or when i started using it. if the skin i'm using is not here, it's most likely on [sog/miyukioo's skinhub](https://github.com/soognare/Miyukioo/blob/master/skin.md). if it's also not there, just send me a PM on osu that i'm sending it to you (except for **"legoshii"** since that skin is private and also not mine.)
 
->my profile is [Ancistrus](https://osu.ppy.sh/users/9676459). i do have other accounts on social media but i prefer not to list them due to past "drama". i just don't really wanna interact with the osu community outside of the game itself or my close friend's discord groups anymore.
+>my profile is [Ancistrus](https://osu.ppy.sh/users/9676459). i do have other accounts on social media but i prefer not to list them due to past "drama". i just don't really wanna interact with the osu community outside of the game itself or my close friends' discord groups anymore.
 
 # [cursor](https://files.catbox.moe/iag5d5.rar)
 ![ApplicationFrameHost_F3uWhLaAnz](https://github.com/ilikeplecos/ilikeplecos/assets/154118561/ef7d5df1-d629-4b22-bcc1-a8bc8d69c0e2)
